@@ -10,7 +10,7 @@
   <em>(A propos jestem ateistą XD)</em><br><br>
 
   <strong>/INFO/</strong><br>
-  Alias: <strong>Jarosław</strong> Kamiński<br>
+  Polish name: <strong>Jarosław</strong><br>
   (Vocative: Jarosławie)<br>
   (Informal: Jaroszek, Voc.: Jaroszku)<br>
   Nickname: <strong>Polski Koreańczyk</strong><br>
