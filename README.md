@@ -10,11 +10,11 @@
   <em>(A propos jestem ateistą XD)</em><br><br>
 
   <strong>/INFO/</strong><br>
-  Polish name: <strong>Jarosław</strong><br>
-  (Vocative: Jarosławie)<br>
-  (Informal: Jaroszek, Voc.: Jaroszku)<br>
+  Polish name: <strong>Władysław Złotowski</strong><br>
+  (Vocative: Władysławie)<br>
+  (Informal: Włodek, Voc.: Włodku)<br>
   Nickname: <strong>Polski Koreańczyk</strong><br>
-  16M, South Korean (Born 21 January 2009)<br>
+  16M, South Korean (Born on 21 January 2009)<br>
   Pronoun: He/Him<br>
   Favorite country: <strong>POLSKA 🇵🇱</strong><br>
   Languages: 한국어 (N), English, polski, русский<br><br>
