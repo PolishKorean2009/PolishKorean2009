@@ -4,7 +4,7 @@
 
 <div align="center">
 
-  <em>(Godło Polski)</em><br><br>
+  <em>(Orzeł Polski)</em><br><br>
 
   <strong><em>Bóg, Honor, i Ojczyzna</em></strong><br>
   <em>(A propos jestem ateistą XD)</em><br><br>
