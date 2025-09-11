@@ -13,7 +13,6 @@
   Polish name: <strong>Władysław Złotowski</strong><br>
   (Vocative: Władysławie)<br>
   (Informal: Włodek, Voc.: Włodku)<br>
-  Nickname: <strong>Polski Koreańczyk</strong><br>
   16M, South Korean (Born on 21 January 2009)<br>
   Pronoun: He/Him<br>
   Favorite country: <strong>POLSKA 🇵🇱</strong><br>
