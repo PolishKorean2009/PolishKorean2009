@@ -17,7 +17,7 @@
   Favorite country: <strong>POLSKA 🇵🇱</strong><br>
   Languages: 한국어(N), English, polski, русский<br><br>
 
-  Wreszcie co <strong>NIE</strong> mniej ważne...<br>
+  I wreszcie co <strong>NIE</strong> mniej ważne...<br>
   <strong>BARDZO KOCHAM POLSKĘ 🇵🇱🇵🇱🇵🇱</strong>
 
 </div>
