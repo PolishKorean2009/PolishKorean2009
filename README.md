@@ -15,7 +15,9 @@
   16M, South Korean (Born on 21 January 2009)<br>
   Pronoun: He/Him<br>
   Favorite country: <strong>POLSKA 🇵🇱</strong><br>
-  Languages: 한국어(N), English, polski, русский<br><br>
+  and maybe <strong>Lietuva 🇱🇹</strong> too<br>
+  Languages: 한국어(N), English, polski, русский<br>
+  Trying to learn: Deutsch, lietuvių<br><br>
 
   I wreszcie co <strong>NIE</strong> mniej ważne...<br>
   <strong>BARDZO KOCHAM POLSKĘ 🇵🇱🇵🇱🇵🇱</strong>
