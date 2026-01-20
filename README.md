@@ -12,7 +12,7 @@
   <strong>/INFO/</strong><br>
   Polish name: <strong>Władysław Kim</strong><br>
   (Zdrobnienie: Włodek)<br>
-  16M, South Korean (Born on 21 January 2009)<br>
+  17M, South Korean (Born on 21 January 2009)<br>
   Pronoun: He/Him<br>
   Favorite country: <strong>POLSKA 🇵🇱</strong><br>
   and maybe <strong>Lietuva 🇱🇹</strong> too<br>
